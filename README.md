@@ -1,2 +1,0 @@
-# LarsBars
-Bartending Experience
